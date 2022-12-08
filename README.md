@@ -1,1 +1,1 @@
-You Have to go WIKI !!
+go WIKI
